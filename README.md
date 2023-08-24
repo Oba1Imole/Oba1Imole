@@ -1,0 +1,7 @@
+- My name is Emmanuel Ajopo 
+- I’m @Oba1Imole
+- A christian||Serial entreprenuer||
+- 👀 I’m interested in coding, business and critical thinking
+- 🌱 I’m currently learning software engineering @ALX with cohort 19
+- 💞️ I’m looking to collaborate on any venture that will boost my scape of knowledge 
+- 📫 you can reach me on whatsapp @08119646478
